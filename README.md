@@ -3,3 +3,4 @@
 - [What Happens to Brain Waves During Stress](https://jyotirgamya.org/opinion/brain-waves-for-emotional-well-being/)
 - [How can you Avoid Being Influenced by Advertising](https://jyotirgamya.org/opinion/how-to-avoid-manipulative-advertisements/)
 - [How Can We Solve The Problem Of Phone Addiction](https://jyotirgamya.org/opinion/smartphone-addiction/)
+- [What are the Signs and Symptoms of Social Media Addiction](https://jyotirgamya.org/opinion/social-media-addiction-symptoms/)
